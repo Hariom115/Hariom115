@@ -8,7 +8,7 @@
 
 - 🌱 I’m currently studying **MCA**
 
-- ⚡ Fun fact **I am funny**.
+- ⚡ Fun fact **I am Tech Geek**.
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">hariomvishwakarma115@gmail.com
